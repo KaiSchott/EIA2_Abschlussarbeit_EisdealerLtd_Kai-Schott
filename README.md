@@ -1,1 +1,0 @@
-# EIA2_Abschlussarbeit_EisdealerLtd_Kai-Schott
